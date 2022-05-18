@@ -1,4 +1,4 @@
 # team-git-practice
 Nathan
 
-Coffee is love, Coffee is live.
+Both coffee and tea are love, both coffee and tea are live. :)
