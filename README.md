@@ -1,3 +1,3 @@
-# team-git-practice
 
-Hello about us!
+ik ben Hiu-Chee
+gaat vaak naar de bioscoop
