@@ -1,3 +1,9 @@
 # team-git-practice
 
-Hello about us!
+
+
+Madhwi
+
+Ik hou van wandelen en series kijken. 
+
+
