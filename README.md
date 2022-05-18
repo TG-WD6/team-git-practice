@@ -1,4 +1,4 @@
 # team-git-practice
 
 Hallo, ik ben Bart
-Escaperoom enthousiast
+Escaperoom enthousiast en fotograaf
